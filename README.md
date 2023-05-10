@@ -3,6 +3,6 @@
 
 💞️ I love fries & make cute things with my computer :)
 
-📫 ig: @unamalva
+📫 ig: @020322032_
 
 
